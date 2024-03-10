@@ -27,9 +27,3 @@
 - 🚗 Vehicles ESP 🚗 - Don't miss a single detail on the battlefield! Our ESP for Vehicles allows you to illuminate vehicles and get important information about them through any obstacle. Don't miss any more opportunities.
 
 - 👤 Spectators Detection 👤 Feel the stares behind your back! Our cheat will immediately notify you if someone starts watching your game. Now you will always be aware when you are being watched so you can turn off the cheat features for more security.
-
----
-
-<a href="https://goo.su/deitrfyk"><img src="https://i.imgur.com/8X0uykR.jpeg" /></a>
-
-
